@@ -1,4 +1,4 @@
-# 
+# secure Template for Affinity Photo for macOS - AI-assisted design and gradient maps offers the most advanced Affinity Photo for macOS template, with AI-assisted design and
 
 
 
